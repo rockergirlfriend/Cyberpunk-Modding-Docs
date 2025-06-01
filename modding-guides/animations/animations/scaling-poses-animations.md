@@ -76,6 +76,8 @@ Have fun! I hope this inspires a lot of awesome poses, especially shippy ones. Y
 
 ## CREDITS
 
+Guide written by Zwei | Rockergirlfriend
+
 xBae for pose templates.
 
 Holopointz, for enabling me to screw around.
